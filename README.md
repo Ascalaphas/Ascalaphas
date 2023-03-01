@@ -53,3 +53,9 @@
 <sub>Though we are trapped</sub>
 
 <sub>In this strange, strange simulation</sub>
+
+May be my favorite song: https://www.youtube.com/watch?v=52pa7rj5zrs
+
+Sometimes I wonder, often I wonder, I have been wondering.
+
+But what about you? Do you wonder why you are here? Curious.
