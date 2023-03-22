@@ -54,7 +54,9 @@
 
 <sub>In this strange, strange simulation</sub>
 
-May be my favorite song: https://www.youtube.com/watch?v=52pa7rj5zrs
+A song: https://www.youtube.com/watch?v=52pa7rj5zrs
+
+"Pensé en un mundo sin memoria, sin tiempo; consideré la posibilidad de un lenguaje que ignorara los sustantivos, un lenguaje de verbos impersonales y de indeclinables epítetos. Así fueron muriendo los días y con los días los años, pero algo parecido a la felicidad ocurrió una mañana. Llovió, con lentitud poderosa." - Jorge Luis Borges, El Aleph.
 
 Sometimes I wonder, often I wonder, I have been wondering.
 
